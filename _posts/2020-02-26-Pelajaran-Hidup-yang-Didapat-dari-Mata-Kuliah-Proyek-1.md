@@ -1,3 +1,3 @@
 ## Hehehehe
 
-	Pelajaran hidup yang saya dapatkan dari mata kuliah ini adalah it's very important for not giving up easily karena banyaknya tugas yang diberikan dalam satu hari. Belajar buat tidak melewatkan  makan karena kalau kita izin satu hari mata kuliah ini = banyak bangeeet ketinggalan tugas. Selain itu, banyak banget pelajaran (materi) yang sangat berguna buat pengetahuan.
+Pelajaran hidup yang saya dapatkan dari mata kuliah ini adalah it's very important for not giving up easily karena banyaknya tugas yang diberikan dalam satu hari. Belajar buat tidak melewatkan  makan karena kalau kita izin satu hari mata kuliah ini = banyak bangeeet ketinggalan tugas. Selain itu, banyak banget pelajaran (materi) yang sangat berguna buat pengetahuan. Lewat mata kuliah ini juga aku bisa tahu lebih banyak tentang teman sekelompok.

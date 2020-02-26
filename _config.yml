@@ -108,7 +108,7 @@ analytics:
 # Site Author
 author:
   name             : "Amalia Hajarani"
-  avatar           : # path of avatar image, e.g. "original.jpg"
+  avatar           : "/original.jpg"
   bio              : "Plain Person"
   location         : "Somewhere"
   email            :
