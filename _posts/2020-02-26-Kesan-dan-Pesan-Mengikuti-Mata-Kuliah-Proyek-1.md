@@ -1,0 +1,2 @@
+		Kesan Pesan saya selama mengikuti mata kuliah proyek, saya merasa kalau tugasnya sangat banyak dan sangat hectic.
+		Sementara epesan saya dalam mengikuti perkuliahan proyek : jangan lupa makan and be strong, *seriously*, jangan lupa makan.
