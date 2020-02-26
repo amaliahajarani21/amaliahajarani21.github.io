@@ -1,4 +1,4 @@
-## Tips dan Trik Mengikuti Mata Kuliah Proyek 1
+## How to Survive Proyek 1 101
 
 
 
